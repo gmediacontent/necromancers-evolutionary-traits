@@ -1,1 +1,2 @@
-# necromancers-evolutionary-traits
+# Necromancer’s Evolutionary Traits
+Makoto Kaneshiro, ancien membre des forces spéciales, passe ses journées à jouer à des jeux vidéo tout en essayant de se réinsérer dans la société. Soudain, il reçoit un appel téléphonique inattendu. « Makoto Kaneshiro, c’est toi ? » L’interlocuteur connaît en détail les informations personnelles de Makoto et ses habitudes de jeu. Pris au dépourvu, Makoto tente d’éteindre son ordinateur, mais… à son grand désarroi, il découvre que la même situation se répète, encore et encore.
